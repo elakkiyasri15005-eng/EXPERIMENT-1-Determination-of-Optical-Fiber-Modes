@@ -52,8 +52,8 @@ coupling lens assembly by adjusting the vertical and horizontal travel arrangeme
 
 ## 📊 OBSERVATION AND CALCULATION
 
-![WhatsApp Image 2025-11-24 at 5 59 33 AM](https://github.com/user-attachments/assets/a25f2b9e-8621-4184-804f-d43bea8a4ad0)
-- 
+![WhatsApp Image 2025-11-24 at 6 21 11 AM](https://github.com/user-attachments/assets/735c43ac-21db-4d51-ba0e-c009155b46fc)
+
 
 
 ## Result
